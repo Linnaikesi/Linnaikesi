@@ -1,5 +1,5 @@
 # 👋 Hello,this is Linnaikesi.
-- 🚹 He/Him,Chinese🇨🇳,Want to be a femboy🥰,Cosplayer.
+- 🚹 He/Him,Chinese🇨🇳,Cosplayer.
 - 🏃 Runner to lost weight.
 - 🧪 Bachelor of Science in Chemistry.
 - 💻 Information Technology and Chemistry.
